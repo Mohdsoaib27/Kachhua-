@@ -1,14 +1,8 @@
-I really like your name btw
+I really like your name ❤️
 
 It's your Birthday!!! <3
 
-Happy Birthday Day!! Yeahh! Love and blah blah...
-
-Send
-
-That's what I was going to do.
-
-But then I stopped.
+Happy Birthday Day!! Yeahh! 
 
 I realized, I wanted to do something special.
 
@@ -20,4 +14,4 @@ S O
 
 
 Happy Birthday Day My Gorgeous
-~kunal# Kachhua-
+# Kachhua-
