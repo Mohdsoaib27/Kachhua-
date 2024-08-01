@@ -3,8 +3,7 @@ I really like your name ❤️
 It's your Birthday!!! <3
 
 Happy Birthday Day!! Yeahh! 
-
-I realized, I wanted to do something special.
+, I wanted to do something special.
 
 Because,
 
